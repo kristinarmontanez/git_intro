@@ -1,1 +1,2 @@
 Kristina Montanez
+montanek@oregonstate.edu
